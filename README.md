@@ -1,1 +1,1 @@
-# Multimedia-Systems-AUTh-Course-Assignment
+# Multimedia Systems AUTh - Course Assignment
